@@ -1,0 +1,1 @@
+# patagonia-trip-2026
